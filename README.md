@@ -2,7 +2,7 @@
 
 ## Bem-vindos ao meu perfil do GitHub! 
 
-🔭 Atualmente trabalho no Bradesco como Estagiária em Projetos.
+🔭 Atualmente trabalho no Bradesco como Estagiária na Área de Projetos.
 
 📋 Faço graduação em Engenharia da computação mas já sou formada em Sistemas da Informação.
 
