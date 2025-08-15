@@ -6,6 +6,6 @@
 
 📋 Faço graduação em Engenharia da computação mas já sou formada em Sistemas da Informação.
 
-💖 Tenho uma vontade muito grande de me desenvolver na Área de Dados.
+💖 Tenho uma vontade gigante de me desenvolver na Área de Dados!
 
 
